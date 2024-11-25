@@ -4,6 +4,7 @@
 
 ## Contact info
 
+Currently residing in London, UK.
 - **Email** [mariya.petrova@gmail.com](mariya.petrova@gmail.com)
 - **Discord** @iamgirloflondon
 
